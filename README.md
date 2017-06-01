@@ -1,0 +1,1 @@
+# Teszteredm-nyek.odt
